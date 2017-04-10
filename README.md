@@ -3,7 +3,7 @@
 
 DOTWEB  is  the WORLD    Advanced and  powerful  Programming  Language invented  by   wilmix  jemin j  at  year 2016  for year  2017.
 
-and it  is  ranked  as  Z'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''( and  so-on)
+and it  is  ranked  as  Z''''''''''''''''''( and  so-on)
 
 Meaning:
 =======
