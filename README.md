@@ -1,21 +1,15 @@
 # DOTWEB
- DOTWEB  is  the WORLD  most  Advanced and  powerful  Programming  Language invented in  JAS  AND  WEBC  by   wilmix  jemin j  at  year 2016  for year  2017.  and it  is  ranked  as  Z'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''( and  so-on)
-# DOTWEB
- DOTWEB  is  the WORLD  most  Advanced and  powerful  Programming  Language invented in  JAS  AND  WEBC  by   wilmix  jemin j  at  year 2016  for year  2017.  and it  is  ranked  as  Z'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''( and  so-on)
-
-
-DOTWEB
 ======
 
-DOTWEB  is  the WORLD  most  Advanced and  powerful  Programming  Language invented  by   wilmix  jemin j  at  year 2016  for year  2017.
+DOTWEB  is  the WORLD    Advanced and  powerful  Programming  Language invented  by   wilmix  jemin j  at  year 2016  for year  2017.
 
 and it  is  ranked  as  Z'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''( and  so-on)
 
 Meaning:
 =======
 
-DOT=> HIGH Prosperity seed for Internal  Business (KING SOLOMON SWORD)
-WEB => Wilmix  with  External Business.
+DOT=> HIGH Prosperity seed for Internal  Business
+WEB => Wilmix  with  External Advanced  Business.
  
 
 SYNTAX:
